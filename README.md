@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ahmedtarekabd
+- 👀 I’m interested in Music, Guitar, Rowing.
+- 🌱 I’m currently learning Computer Engineering, Programming.
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me: ahmedtarekabd2002@gmail.com
